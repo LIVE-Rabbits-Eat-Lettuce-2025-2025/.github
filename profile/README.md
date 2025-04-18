@@ -1,5 +1,10 @@
 Rainbow Disco Club 2025に出演を予定しておりましたRon Trent がアーティストの事情により、やむを得ず出演キャンセルとなりました。 楽しみにされていた皆様にはご迷惑をおかけして大変申し訳ございませんが、ご理解いただけますようお願い申し上げます。 Ron Trent 本人によるコメントは文章の末尾に掲載いたします。
 
+ライブ ==> https://www.worldsportshd.com/jp-festival2/
+
+ライブ ==> https://www.worldsportshd.com/jp-festival2/
+
+
 同時に、Rainbow Disco Club 2025 最終日に新たに出演する2組のアーティストを発表いたします。
 
 1組目はFrancois K. の緊急来日が決定。1970年代後半から現在に至るまで常にダンス・ミュージック・シーンの最先端で活躍を続ける驚異的アーティストであり、Danny KrivitやJoe Claussellと共にレギュラーを務めるパーティー「Body & Soul」のメンバーとしても知られている正真正銘のレジェンドです。
